@@ -70,6 +70,13 @@ Word has it that the RPO didn't pay well so he instead played film music which p
 
 He is also said to have been a fan of jazz and played the saxophone. 
 
+Allan and Liz are picked up again by a 1961? electoral register as living on the Henry Prince estate in Earlsfield, Wandsworth (number 188). This is the same estate where London Mayor Sadiq Khan grew up!
+
+# The Connections
+What is the Bristol connection? and what is the Worthing connection?
+
+
+
 
 
 
