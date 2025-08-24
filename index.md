@@ -38,13 +38,13 @@ In 1909 he Married Edith Haines, daughter of Charles Haines, born 1849 Clifton, 
 
 This (19??) Census has William George down as a Lithographer for a local printing firm.
 
-<img width="2487" height="744" alt="glasspoolfamilytree" src="https://github.com/user-attachments/assets/06d74dce-7528-4b21-a631-f44f4cb84006" />
+<img width="100%" alt="glasspoolfamilytree" src="https://github.com/user-attachments/assets/06d74dce-7528-4b21-a631-f44f4cb84006" />
 
 Here are some photographs of William Glasspool and family:
 
-<img width="1749" height="1274" alt="jeanphotos" src="https://github.com/user-attachments/assets/aa87f25e-178a-46d8-864a-e9b197370927" />
+<img width="100%" alt="jeanphotos" src="https://github.com/user-attachments/assets/aa87f25e-178a-46d8-864a-e9b197370927" />
 
-<img width="1749" height="1274" alt="jeanphotos2" src="https://github.com/user-attachments/assets/1f9d2a18-2066-43c6-96dd-2902293caed5" />
+<img width="100%" alt="jeanphotos2" src="https://github.com/user-attachments/assets/1f9d2a18-2066-43c6-96dd-2902293caed5" />
 
 # Allan Glasspool (G)
 Was born in Bristol in 1913. In 1939 he married Elizabeth Barker whose family was from Stoke-on-Trent. This was her second marriage as her previous husband (Edward Lucas) had died at the age of 22. His mother Elsie Jones was from north Wales.
