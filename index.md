@@ -1,5 +1,5 @@
 
-# Charles Glasspool (GGG)
+# Charles Glasspool (GGGG)
 This is where it all began! The earliest Glasspool on record!
 Charles Glasspool, aged 54 is picked up in the 1851 Census living at 39 Lower Kennington Lane next to the Lamb and Hare brewery in Kennington.
 This is near the Elephant & Castle at the end of the A3, which used to be known as Portsmouth Road.
@@ -25,8 +25,29 @@ In any case, the Census listed his profession as Cooper so it is likely that he 
 
 The Census lists his four children as all having been born in Lambeth, the eldest of which was 11 at the time of the Census. It also lists his place of birth as Portsmouth (in 1797) and his wife's as Beeding; a village near Brighton.
 
-# William Glasspool (GG)
+# William Glasspool (GGG)
 Charles' second son William was aged 4 at the time of the Census so born (most likely in Lower Kennington Road) in 1847 and died in 1902 in Edmonton, London.
+William married Elizabeth Mary Oliver who was born the same year in St John's Wood (North London). She died in 1917 in Bristol. Her elder brothers were born in Peckham in the early 1850s suggesting that the family lived locally at the time.
+
+Why did she die in Bristol 15 years after her husband's death in London?
+
+# William George Glasspool (GG)
+Listed in the xx census as being born in Swansea in 1876. This is an anomaly; all 5 of his siblings 1874 - 1888 were born in Newington (the area encompassing Lower Kennington Road) and he died at 8 Bonneville Gardens in Clapham on 18th Jan 1941. Both he and Edith were listed in the 1939 census as living at 8 Bonneville Gardens. The house still exists. 
+
+In 1909 he Married Edith Haines, daughter of Charles Haines, born 1849 Clifton, Bristol. According to [this website](http://cliftonrfchistory.co.uk/members/membersH.htm) Charles' father William ran a Bakery.
+
+This (19??) Census has William George down as a Lithographer for a local printing firm.
+
+<img width="2487" height="744" alt="glasspoolfamilytree" src="https://github.com/user-attachments/assets/06d74dce-7528-4b21-a631-f44f4cb84006" />
+
+Here are some photographs of William Glasspool and family:
+
+<img width="1749" height="1274" alt="jeanphotos" src="https://github.com/user-attachments/assets/aa87f25e-178a-46d8-864a-e9b197370927" />
+
+<img width="1749" height="1274" alt="jeanphotos2" src="https://github.com/user-attachments/assets/1f9d2a18-2066-43c6-96dd-2902293caed5" />
+
+# Allan Glasspool (G)
+Was born in Bristol in 1913. In 1939 he married Elizabeth Barker whose family was from Stoke-on-Trent. This was her second marriage as her previous husband (Edward Lucas) had died at the age of 22. His mother Elsie Jones was from north Wales.
 
 
 
