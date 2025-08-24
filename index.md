@@ -2,7 +2,8 @@
 # Charles Glasspool (GGGG)
 This is where it all began! The earliest Glasspool on record!
 Charles Glasspool, aged 54 is picked up in the 1851 Census living at 39 Lower Kennington Lane next to the Lamb and Hare brewery in Kennington.
-This is located near the Elephant & Castle at the end of the A3, which used to be known as Portsmouth Road.
+This is located near the Elephant & Castle at the end of the A3, which used to be known as Portsmouth Road because it was the main road between London and Portsmouth.
+
 Here is a photo from 1906 looking north towards Elephant & Castle, with the brewery pictured on the right: 
 
 ![lambandhare](https://github.com/user-attachments/assets/fe12c21d-a4bb-429c-ad6c-276f7b8624d7)
@@ -11,7 +12,7 @@ The brewery along with most of the buildings next to it have since been demolish
 
 ![IMG_20250824_162938001_HDR](https://github.com/user-attachments/assets/ac83d137-97ed-4e98-8032-fbe21f41e75f)
 
-Number 39 Lower Kennington Lane is pictured here to the left of the derelict Lamb and Hare brewery in 1950:
+Another photo from Lambeth Council archives shows number 39 Lower Kennington Lane pictured here to the left of the derelict Lamb and Hare brewery in 1950:
 
 ![LambandHare](https://github.com/user-attachments/assets/e1c69e5a-e7f6-44ca-8605-e0505467b1b4)
 
@@ -23,13 +24,13 @@ The Census lists Charles' address simply as LKL (Lower Kennington Lane), so coul
 
 ![SRYHO107_1572_1572-1549](https://github.com/user-attachments/assets/31fe2667-5c4a-435a-8ad4-7dd4e814d4d5)
 
-In any case, the Census listed his profession as Cooper so it is likely that he worked at the Lamb and Hare and lodgings were included in the job.
+In any case, the Census listed his profession as Cooper so it is likely that he worked at the Lamb and Hare and that lodgings came along with the job.
 
 The Census lists his four children as all having been born in Lambeth, the eldest of which was 11 at the time of the Census. It also lists his place of birth as Portsmouth (in 1797) and his wife's as Beeding; a village near Worthing.
 
 # William Glasspool (GGG)
 Charles' second son William was aged 4 at the time of the Census so born (most likely in Lower Kennington Road) in 1847 and died in 1902 in Edmonton, London.
-William married Elizabeth Mary Oliver who was born the same year in St John's Wood (North London). She died in 1917 in Bristol. Her elder brothers were born in Peckham in the early 1850s suggesting that the family lived locally at the time.
+William married Elizabeth Mary Oliver who was born the same year in St John's Wood (North London). She died in 1917 in Bristol. Her elder brothers were born in Peckham in the early 1850s, which suggests that her family lived locally at the time they met.
 
 Why did she die in Bristol 15 years after her husband's death in London?
 
