@@ -1,13 +1,25 @@
-It all begins with Charles Glasspool, who appears in an 1851 Census as living at 39 Lower Kennington Lane in Kennington, London.
-This at the end of the A3, which used to be known as Portsmouth Road.
+This is where it all began! The earliest Glasspool on record!
+Charles Glasspool, aged 54 is picked up in the 1851 Census living at 39 Lower Kennington Lane in Kennington, London.
 
-Here it is on the left of the Lamb and Hare pub:
+This is near the Elephant & Castle at the end of the A3, which used to be known as Portsmouth Road.
+
+![lambandhare](https://github.com/user-attachments/assets/fe12c21d-a4bb-429c-ad6c-276f7b8624d7)
+
+Number 39 Lower Kennington Lane is pictured here to the left of the derelict Lamb and Hare pub in 1950:
 
 ![LambandHare](https://github.com/user-attachments/assets/e1c69e5a-e7f6-44ca-8605-e0505467b1b4)
 
-The Census not clear 
+The Census not clear as to whether Charles and his family actually lived at number 39, which is listed as a *Bash House*? What is a Bash House? 
 
-![lambandhare](https://github.com/user-attachments/assets/fe12c21d-a4bb-429c-ad6c-276f7b8624d7)
+![Screenshot_23-8-2025_124541_www ancestry com](https://github.com/user-attachments/assets/8868734c-70f9-45a1-8e67-b3ce164e8c48)
+
+The Census lists Charles' address simply as LKL (Lower Kennington Lane), so could it be that they lived in the Lamb and Hare pub next door or were there lodgings through the alleyway shown above?
+
+![SRYHO107_1572_1572-1549](https://github.com/user-attachments/assets/31fe2667-5c4a-435a-8ad4-7dd4e814d4d5)
+
+
+
+
 
 
 
