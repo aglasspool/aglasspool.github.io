@@ -37,7 +37,7 @@ Why did she die in Bristol 15 years after her husband's death in London?
 # William George Glasspool (GG)
 Listed in the xx census as being born in Swansea in 1876. This is an anomaly; all 5 of his siblings 1874 - 1888 were born in Newington (the area encompassing Lower Kennington Road) and he died at 8 Bonneville Gardens in Clapham on 18th Jan 1941. Both he and Edith were listed in the 1939 census as living at 8 Bonneville Gardens. The house still exists. 
 
-In 1909 he Married Edith Haines, daughter of Charles Haines, born 1849 Clifton, Bristol. According to [this website](http://cliftonrfchistory.co.uk/members/membersH.htm) Charles' father William ran a Bakery.
+In 1909 he Married Edith Haines, daughter of Charles Haines, born 1849 Clifton, Bristol. According to [this website](http://cliftonrfchistory.co.uk/members/membersH.htm) Charles' father William ran a Bakery. In a census Charles' profession is recorded as Musician so this is probably where the musical impetus comes from.
 
 This (19??) Census has William George down as a Lithographer for a local printing firm.
 
