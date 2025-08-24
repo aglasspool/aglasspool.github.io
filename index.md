@@ -1,7 +1,9 @@
 
 # Charles Glasspool (GGGG)
 This is where it all began! The earliest Glasspool on record!
-Charles Glasspool, aged 54 is picked up in the 1851 Census living at 39 Lower Kennington Lane next to the Lamb and Hare brewery in Kennington.
+
+Charles Glasspool, aged 54 is recorded in the 1851 Census as living at _39 Lower Kennington Lane_ next to the _Lamb and Hare_ brewery in Kennington.
+
 This is located near the Elephant & Castle at the end of the A3, which used to be known as Portsmouth Road because it was the main road between London and Portsmouth.
 
 Here is a photo from 1906 looking north towards Elephant & Castle, with the brewery pictured on the right: 
