@@ -30,7 +30,7 @@ url: "https://aglasspool.github.io" # the base hostname & protocol for your site
 github_username:  aglasspool
 
 # Build settings
-theme: merlot
+theme: jekyll-theme-merlot
 plugins:
   - jekyll-feed
 
