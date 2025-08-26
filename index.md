@@ -37,11 +37,17 @@ William married Elizabeth Mary Oliver who was born the same year in St John's Wo
 Why did she die in Bristol 15 years after her husband's death in London?
 
 # William George Glasspool (GG)
-Listed in the xx census as being born in Swansea in 1876. This is an anomaly; all 5 of his siblings 1874 - 1888 were born in Newington (the area encompassing Lower Kennington Road) and he died at 8 Bonneville Gardens in Clapham on 18th Jan 1941. Both he and Edith were listed in the 1939 census as living at 8 Bonneville Gardens. The house still exists. 
+Listed in the xx census as being born in Swansea in 1876. This is an anomaly; all 5 of his siblings 1874 - 1888 were born in Newington (the area encompassing Lower Kennington Road) and he died at 8 Bonneville Gardens in Clapham on 18th Jan 1941. Both he and Edith were listed in the 1939 census as living at 8 Bonneville Gardens along with their son Edgar Glasspool and Williams brother? Ernest Glasspool.  
 
-In 1909 he Married Edith Haines, daughter of Charles Haines, born 1849 Clifton, Bristol. According to [this website](http://cliftonrfchistory.co.uk/members/membersH.htm) Charles' father William ran a Bakery. In a census Charles' profession is recorded as Musician so this is probably where the musical impetus comes from.
+![1939census](https://github.com/user-attachments/assets/40b949b9-a129-43d7-b8c6-2f7a61446d51)
 
-This (19??) Census has William George down as a Lithographer for a local printing firm.
+The house still exists today. Here it is:
+
+<img width="100%" alt="Screenshot 2025-08-26 at 07-58-12 6 Bonneville Gardens - Google Maps" src="https://github.com/user-attachments/assets/eeacbb8d-05fb-44ae-a143-fc90fbb4bbeb" />
+
+In 1909 he Married Edith Haines, daughter of Charles Haines, born 1849 Clifton, Bristol. According to [this website](http://cliftonrfchistory.co.uk/members/membersH.htm) Charles' father William ran a Bakery. In one census, Charles' profession is listed as Printer/Compositor but in another he is recorded as beieng a Musician so this is probably where the Glasspool family musical impetus comes from.
+
+This (19??) Census has William George down as a Lithographer for a local Bristol printing firm Mardon Son & Hall. Is this the same company where his father-in-law worked? It was [known](https://www.wopc.co.uk/uk/mardon/) for printing collectable token cards for cigarette packets and was taken over by Imperial Tobacco in 1906.
 
 <img width="100%" alt="glasspoolfamilytree" src="https://github.com/user-attachments/assets/06d74dce-7528-4b21-a631-f44f4cb84006" />
 
