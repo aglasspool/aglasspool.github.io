@@ -2,9 +2,10 @@
 # Charles Glasspool (GGGG)
 This is where it all began! The earliest Glasspool on record!
 
-Charles Glasspool, aged 54 is recorded in the 1851 Census as living at _39 Lower Kennington Lane_ next to the _Lamb and Hare_ brewery in Kennington.
+Charles Glasspool, aged 45 is recorded in the 1841 Census as living at _41 Lower Kennington Lane_ behind the _Lamb and Hare_ brewery in Kennington.
+He is listed as living there with his then-to-be wife Mary Welling and two other families living in the lodgings behind the brewery.
 
-This is located near the Elephant & Castle at the end of the A3, which used to be known as Portsmouth Road because it was the main road between London and Portsmouth.
+This is located near the Elephant & Castle at the end of the A3, which used to be known as Portsmouth Road because it was the main road between London and Portsmouth. The Barclay Perkins brewery (previously the Anchor brewery subsequently purchased by Barclays Bank) was [apparently](https://beerandbrewing.com/dictionary/pZTMpBv4Va/) the largest brewer in the world at that time 
 
 Here is a photo from 1906 looking north towards Elephant & Castle, with the brewery pictured on the right: 
 
@@ -14,21 +15,21 @@ The brewery along with most of the buildings next to it have since been demolish
 
 ![IMG_20250824_162938001_HDR](https://github.com/user-attachments/assets/ac83d137-97ed-4e98-8032-fbe21f41e75f)
 
-Another photo from Lambeth Council archives shows number 39 Lower Kennington Lane pictured here to the left of the derelict Lamb and Hare brewery in 1950:
+Another photo from Lambeth Council archives shows the derelict Lamb and Hare pub in 1950:
 
 ![LambandHare](https://github.com/user-attachments/assets/e1c69e5a-e7f6-44ca-8605-e0505467b1b4)
 
-The Census not clear as to whether Charles and his family actually lived at number 39, which is listed as a *Bash House*? What is a Bash House? 
-
-![Screenshot_23-8-2025_124541_www ancestry com](https://github.com/user-attachments/assets/8868734c-70f9-45a1-8e67-b3ce164e8c48)
-
-The Census lists Charles' address simply as LKL (Lower Kennington Lane), so could it be that they lived in the Lamb and Hare pub next door or were there lodgings through the alleyway beside the brewery?
+They are then picked up in the 1851 census at the same address but now married with one daughter (Matilda 11) and three sons (Charles 9, William 4 and Henry 2) 
 
 ![SRYHO107_1572_1572-1549](https://github.com/user-attachments/assets/31fe2667-5c4a-435a-8ad4-7dd4e814d4d5)
 
-In any case, the Census listed his profession as Cooper so it is likely that he worked at the Lamb and Hare and that lodgings came along with the job.
+The Census again listed Charles' profession as Cooper so it is likely that he worked at the Lamb and Hare and that lodgings came along with the job.
 
-The Census lists his four children as all having been born in Lambeth, the eldest of which was 11 at the time of the Census. It also lists his place of birth as Portsmouth (in 1797) and his wife's as Beeding; a village near Worthing.
+The Census lists his four children as all having been born in there in Lambeth, the children's birth certificates confirm the address as 41 Lower Kennington Road. It also lists his place of birth as Portsmouth (in 1797) and his wife's as Beeding; a village near Worthing.
+
+Charles died three years later in 1854. 
+
+The next census in 1861
 
 # William Glasspool (GGG)
 Charles' second son William was aged 4 at the time of the Census so born (most likely in Lower Kennington Road) in 1847 and died in 1902 in Edmonton, London.
