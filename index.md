@@ -1,39 +1,42 @@
 
 # Charles Glasspool (GGGG)
-This is where it all began! The earliest Glasspool on record!
+This is where it all begins! Just south of the Elephant & Castle on the Kennington side of Newington at the end of the A3, which used to be known as Portsmouth Road because it was the main road between London and Portsmouth. 
 
-Charles Glasspool, aged 45 is recorded in the 1841 Census as living at _41 Lower Kennington Lane_ behind the _Lamb and Hare_ brewery in Kennington.
-He is listed as living there with his then-to-be wife Mary Welling and two other families living in the lodgings behind the brewery.
+Charles Glasspool, aged 45 is recorded in the 1841 Census as living at _41 Lower Kennington Lane_ behind the King's Arms pub in Kennington.
+He is listed as living there with his then-to-be wife Mary Welling (20 years his younger) and two other families living in buildings between the pub and Kennington Manor House.
 
-This is located near the Elephant & Castle at the end of the A3, which used to be known as Portsmouth Road because it was the main road between London and Portsmouth. The Barclay Perkins brewery (previously the Anchor brewery subsequently purchased by Barclays Bank) was [apparently](https://beerandbrewing.com/dictionary/pZTMpBv4Va/) the largest brewer in the world at that time 
+Not sure yet exactly which of the buildings it is but here's a 1828 map of the area (some 13 years before the census):
 
-Here is a photo from 1906 looking north towards Elephant & Castle, with the brewery pictured on the right: 
+<img width="100%" alt="possible41lowerkenningtonroad" src="https://github.com/user-attachments/assets/1908fb4a-f3e5-444a-a057-1c33d419fc39" />
 
-![lambandhare](https://github.com/user-attachments/assets/fe12c21d-a4bb-429c-ad6c-276f7b8624d7)
 
-The brewery along with most of the buildings next to it have since been demolished. The police station on the left has been demolished and replaced but the buildings housing the Butterfield Jewellery are still standing. Here is the same view today:
-
-![IMG_20250824_162938001_HDR](https://github.com/user-attachments/assets/ac83d137-97ed-4e98-8032-fbe21f41e75f)
-
-Another photo from Lambeth Council archives shows the derelict Lamb and Hare pub in 1950:
-
-![LambandHare](https://github.com/user-attachments/assets/e1c69e5a-e7f6-44ca-8605-e0505467b1b4)
-
-They are then picked up in the 1851 census at the same address but now married with one daughter (Matilda 11) and three sons (Charles 9, William 4 and Henry 2) 
+They are then picked up again in the 1851 census at the same address but now married with one daughter (Matilda 11) and three sons (Charles 9, William 4 and Henry 2) 
 
 ![SRYHO107_1572_1572-1549](https://github.com/user-attachments/assets/31fe2667-5c4a-435a-8ad4-7dd4e814d4d5)
 
-The Census again listed Charles' profession as Cooper so it is likely that he worked at the Lamb and Hare and that lodgings came along with the job.
+The Census again listed Charles' profession as Cooper so it is likely that he worked at the King's Arms pub and that lodgings came along with the job?
 
 The Census lists his four children as all having been born in there in Lambeth, the children's birth certificates confirm the address as 41 Lower Kennington Road. It also lists his place of birth as Portsmouth (in 1797) and his wife's as Beeding; a village near Worthing.
 
-Charles died three years later in 1854. 
+Charles died three years after this census in 1854. 
 
-The next census in 1861
+The next census in 1861 shows Mary Ann Glasspool and the children now living at 42A Lower Kennington road.
+
+It would seem that maybe they have moved into her shop/workshop? This image shows the entrance to Viet Charles Mitchell's paint-making workshop at number 40 LKR at around circa 1850. 
+
+![42LKL](https://github.com/user-attachments/assets/1697054b-3cdd-4648-8609-6d22252771c0)
+
+The Post Office Directory from 1860 shows that he shares that yard with William Sheppard (A 'Hatter') and that number 41 (listed as East House?) is occupied by Richard Myers, an auctioneer. At number 42, Mary Ann Glasspool is listed as Dressmaker:
+
+<img width="100%" alt="Screenshot 2025-08-27 at 19-39-15 47056_263021009499_1500-00502 jpg (JPEG Image 3840 × 5760 pixels) — Scaled (11%)" src="https://github.com/user-attachments/assets/4334abad-788c-434c-8d29-3f6faf8c23ff" />
+
+Mary Ann is next found in 1863 living on Dalston Lane and remarrying. The Children are next picked up in 1871 living at 46 Newington Butts with an unknown couple and the census is struck through with what looks like 'church ...'.
 
 # William Glasspool (GGG)
-Charles' second son William was aged 4 at the time of the Census so born (most likely in Lower Kennington Road) in 1847 and died in 1902 in Edmonton, London.
-William married Elizabeth Mary Oliver who was born the same year in St John's Wood (North London). She died in 1917 in Bristol. Her elder brothers were born in Peckham in the early 1850s, which suggests that her family lived locally at the time they met.
+Charles' second son William was born at 41 LKR (according to his baptism certifcate from St Mary's Church) in 1847 and died in 1902 in Edmonton, London.
+William married Elizabeth Mary Oliver who was born the same year in St John's Wood (North London). She died in 1917 in Bristol. Her elder/younger? brothers were born in Peckham in the early 1850s, which suggests that her family lived locally at the time they met.
+
+He is next found at 46 Newington Butts and the 6 Brunswick Place and then to Tottenham. Did they move there to buy?
 
 Why did she die in Bristol 15 years after her husband's death in London?
 
