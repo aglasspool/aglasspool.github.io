@@ -16,15 +16,17 @@ They are then picked up again in the 1851 census at the same address but now mar
 
 The Census again listed Charles' profession as Cooper so it is likely that he worked at the King's Arms pub and that lodgings came along with the job?
 
-The Census lists his four children as all having been born in there in Lambeth, the children's birth certificates confirm the address as 41 Lower Kennington Road. It also lists his place of birth as Portsmouth (in 1797) and his wife's as Beeding; a village near Worthing.
+The Census lists his four children as all having been born in there in Newington and their birth certificates confirm the address as 41 Lower Kennington Road. It also lists Charles' place of birth as Portsmouth (in 1797) and his wife's as Beeding; a village near Worthing.
 
 Charles died three years after this census in 1854. 
 
-The next census in 1861 shows Mary Ann Glasspool and the children now living at 42A Lower Kennington road.
+The next census in 1861 shows Mary Ann Glasspool and the children now living at 42A Lower Kennington road. This census doesn't list number 41 so have they moved house or did the census just list what was 41 now as 42? This theory is backed up by the fact that previous censuses have shown three households living at number 41 and this census shows three households at number 42. There's the shoemaker Henry Brown at number 42, Mary Ann and children at 42A and Hotel porter Thomas Wilkinson at 42B. Matilda Glasspool, the eldest daughter (now 20) is also listed as a dressmaker so probably working for the family business. In between numbers 42 and 42A, 42B is 'East House' where auctioneer Raphael Myers and his wife live with their two grandaughters.
 
 It would seem that maybe they have moved into her shop/workshop? This image shows the entrance to Viet Charles Mitchell's paint-making workshop at number 40 LKR at around circa 1850. 
 
 ![42LKL](https://github.com/user-attachments/assets/1697054b-3cdd-4648-8609-6d22252771c0)
+
+Number 41 or 42 as it was later referred to would have been just to the left of Mitchell's workshop.
 
 The Post Office Directory from 1860 shows that he shares that yard with William Sheppard (A 'Hatter') and that number 41 (listed as East House?) is occupied by Richard Myers, an auctioneer. At number 42, Mary Ann Glasspool is listed as Dressmaker:
 
