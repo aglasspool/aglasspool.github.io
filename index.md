@@ -6,7 +6,7 @@ Charles Glasspool, aged 45 is recorded in the 1841 Census as living at *41 Lower
 He is listed as living there with his then-to-be wife Mary Welling (20 years his younger) and two other families living in buildings between the pub and Kennington Manor House.
 
 ![IMG_20250828_133625917_HDR](https://github.com/user-attachments/assets/bf00d10a-a5d7-4ebd-b993-6ef19de28fab)
-*Photo of 41 Lower Kennington Lane - now renumbered as no. 90 Kennington Lane.*
+*Photo of 41 Lower Kennington Lane - since renumbered first as 89 and now as no. 90 Kennington Lane.*
 
 Here is a view of the rear of the building; it is clear from the brickwork and anchor plates that the front part of the building has been tacked on to the older rear:
 
@@ -21,6 +21,10 @@ Here is the King's Arms pub, Long Barn and Manor House shown on a 1828 map of th
 
 ![1928 map](https://github.com/user-attachments/assets/1908fb4a-f3e5-444a-a057-1c33d419fc39)
 *1928 Greenwood Map of London*
+
+![IMG_20250828_110513684](https://github.com/user-attachments/assets/922a1f34-bd1e-4cee-9ded-a3a03bb61e9e)
+*1867 renumbering plan showing the Long Barn to be numbered as no. 86 but failing to show the old number (41)* 
+
 
 ---
 
