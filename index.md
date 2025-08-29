@@ -1,4 +1,3 @@
-
 # Charles Glasspool (GGGG)
 This is where it all begins! Just south of the Elephant & Castle on the Kennington side of Newington at the end of the A3, which used to be known as Portsmouth Road because it was the main road between London and Portsmouth. 
 
@@ -37,30 +36,66 @@ A later 1934 renumbering plan changes it from 86 to the current address which is
 The 1841 census picks up Charles living there at no. 41 together with his then-to-be wife Mary Welling (20 years his younger) and three other families:
 
 ![SRYHO107_1058_1058-0512(3)](https://github.com/user-attachments/assets/8bed7e32-b8f4-43a8-9f29-8bb9bb11bdf8)
+* 1841 Census *
 
 They are then picked up again in the 1851 census at the same address but now married with one daughter (Matilda 11) and three sons (Charles 9, William 4 and Henry 2) as well as 2/3 other households:
 
 ![SRYHO107_1572_1572-1549](https://github.com/user-attachments/assets/31fe2667-5c4a-435a-8ad4-7dd4e814d4d5)
+* 1851 Census *
 
-The Census again listed Charles' profession as Cooper so it is likely that he worked at the King's Arms pub and that the lodgings came along with the job?
-
-The Census lists his four children as all having been born in there in Newington and their birth certificates confirm the address as 41 Lower Kennington Road. It also lists Charles' place of birth as Portsmouth (in 1797) and his wife's as Beeding; a village near Worthing.
+The Census again listed Charles' profession as Cooper so is it possible that he worked at the King's Arms pub and that the lodgings came along with the job?
+or did he work for one of the several breweries up the road?
 
 Charles died three years after this census in 1854. 
 
-The next census in 1861 shows Mary Ann Glasspool and the children now living at 42A Lower Kennington road. This census doesn't list number 41 so have they moved house or did the census just list what was 41 now as 42? This theory is backed up by the fact that previous censuses have shown three households living at number 41 and this census shows three households at number 42. There's the shoemaker Henry Brown at number 42, Mary Ann and children at 42A and Hotel porter Thomas Wilkinson at 42B. Matilda Glasspool, the eldest daughter (now 20) is also listed as a dressmaker so probably working for the family business. In between numbers 42 and 42A, 42B is 'East House' where auctioneer Raphael Myers and his wife live with their two grandaughters.
+The next census in 1861 shows Mary Ann Glasspool and the children now living at 42A Lower Kennington road. This census doesn't list number 41 so have they moved house or did the census just list what was 41 now as 42? This theory is backed up by the fact that previous censuses have shown three households living at number 41 and this census shows three households at number 42.
 
-It would seem that maybe they have moved into her shop/workshop? This image shows the entrance to Viet Charles Mitchell's paint-making workshop at number 40 LKR at around circa 1850. 
+![SRYRG9_352_355-0444(4)](https://github.com/user-attachments/assets/4b23e074-1f68-4fac-819e-542320cbfd3d)
+* 1861 Census Page 1*
+
+![SRYRG9_352_355-0445(2)](https://github.com/user-attachments/assets/8236a73a-c608-4ebc-a8ab-33decff10a35)
+* 1861 Census Page 2*
+
+There's the shoemaker Henry Brown at number 42, Mary Ann and children at 42A and Hotel porter Thomas Wilkinson at 42B. Matilda Glasspool, the eldest daughter (now 20) is also listed as a dressmaker so probably working for the family business. In between numbers 42 and 42A, 42B is 'East House' where auctioneer Raphael Myers and his wife live with their two grandaughters.
+
+Have they now moved from 41 (East house) into the workshop next door to the right? This image shows the entrance to Viet Charles Mitchell's paint-making workshop at number 40 LKR at around circa 1850 and Mary Glasspool Dressmakers is listed in the post office directory (1960) as being next door on the left. 
 
 ![42LKL](https://github.com/user-attachments/assets/1697054b-3cdd-4648-8609-6d22252771c0)
+* Illustration showing Manor House in the background with Viet Charles Mitchell's paint workshop at 40 LKR*
 
-Number 41 or 42 as it was later referred to would have been just to the left of Mitchell's workshop.
+The Post Office Directory from 1860 also shows that he shares that yard with William Sheppard (A 'Hatter') and that number 41 (listed as East House) is occupied by Richard Myers, an auctioneer. This is further confirmation that number 41 was indeed East House. At number 42, Mary Ann Glasspool is listed as Dressmaker:
 
-The Post Office Directory from 1860 shows that he shares that yard with William Sheppard (A 'Hatter') and that number 41 (listed as East House?) is occupied by Richard Myers, an auctioneer. At number 42, Mary Ann Glasspool is listed as Dressmaker:
+![1860 Post office directory](https://github.com/user-attachments/assets/4334abad-788c-434c-8d29-3f6faf8c23ff)
+*1860 Post Office Directory - Extract for Lower Kennington Lane*
 
-<img width="100%" alt="Screenshot 2025-08-27 at 19-39-15 47056_263021009499_1500-00502 jpg (JPEG Image 3840 × 5760 pixels) — Scaled (11%)" src="https://github.com/user-attachments/assets/4334abad-788c-434c-8d29-3f6faf8c23ff" />
+The question is whether 42A is where Mary Ann and family are now living or whether this is where she has her dressmaking workshop, which might now be part of or attached to East House (number 41).
 
-Mary Ann is next found in 1863 living on Dalston Lane and remarrying. The Children are next picked up in 1871 living at 46 Newington Butts with an unknown couple and the census is struck through with what looks like 'church ...'.
+The answer may lie in the 1871 Census which now shows East House (no.41) now renumber as no. 86 and that whilst there in no no. 85, next door there is a no. 85A which is described by the Census as 'this 85A is down a yard'. This is supported by the above-shown 1867 renumbering map, which shows an alleyway between numbers 86-84 and also the 1850 illustration showing Viet Charles Mitchell's paint yard at number 40 as being an entrance to a yard:
+
+![LNDRG10_664_665-0071](https://github.com/user-attachments/assets/534bbf4b-30ce-48b7-8238-3e41bdfc4193)
+* 1871 Census*
+
+Here's a photo from across the other side of the road showing the Chapel and Salvation Army depot around circa 1890 to give a flavour of how things would have looked back then: 
+
+![IMG_20250828_130117284](https://github.com/user-attachments/assets/4dc0098a-bb30-4cc6-8f5d-29d299dee4dd)
+
+
+---
+
+## The move to Newington Butts
+Mary Ann is next found on record in 1863 remarrying in Hackney to a certain Joseph Knights (bachelor). They are all then picked up in the 1871 census living at number 74A Newington Butts. Here's a photo of Newington Butts looking south with the junction with St Gabriel Street on the right circa 1890; 74A would have been around 10 doors further down after St Gabriel Street on the right hand side.
+
+![IMG_20250828_130053192_HDR](https://github.com/user-attachments/assets/d30e6e2f-63b8-4741-9ab5-df880dfcabf4)
+*Newington Butts corner with St Gabriel Street circa 1890*
+
+Here's the same part of Newington Butts but from the south side of St Gabriel Street on the left looking North circa 1930:
+
+![IMG_20250828_184610482_HDR](https://github.com/user-attachments/assets/e18b37a8-7c38-4603-8ef1-5dacc2ca3e49)
+* Roughly number 70 Newington Butts on the left looking north through Elephant and Castle with St Gabriel St on the left (1930)*
+
+---
+
+Incidentally all Censuses lists Charles' four children as all having been born in there in Newington and their birth certificates confirm the address as 41 Lower Kennington Road. It also lists Charles' place of birth as Portsmouth (in 1797) and his wife's as Beeding; a village near Worthing. According to other records, Charles was born in Southwick near Portsmouth and his father was also born there. Their forefathers are all then listed as living in Titchfield near Portsmouth as far back as the beginning of the 15th Century. 
 
 # William Glasspool (GGG)
 Charles' second son William was born at 41 LKR (according to his baptism certifcate from St Mary's Church) in 1847 and died in 1902 in Edmonton, London.
