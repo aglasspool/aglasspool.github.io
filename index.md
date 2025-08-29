@@ -21,26 +21,28 @@ Here is the King's Arms pub, Long Barn and Manor House shown on a 1828 map of th
 ![1928 map](https://github.com/user-attachments/assets/1908fb4a-f3e5-444a-a057-1c33d419fc39)
 *1928 Greenwood Map of London*
 
-An 1867 Council renumbering plan shows the Long Barn to be numbered as no. 86 but fails to show the old number (41). This could be due to the confusion from it also being known as 'East House'. A later 1934 renumbering plan changes it from 86 to the current address which is no. 90 Kennington Lane. 
+An 1867 Council renumbering plan shows the Long Barn to be numbered as no. 86 but fails to show the old number (41). This could be due to the confusion from it also being known as 'East House'. 
 
 ![IMG_20250828_110513684](https://github.com/user-attachments/assets/922a1f34-bd1e-4cee-9ded-a3a03bb61e9e)
 *1867 renumbering plan showing the Long Barn to be numbered as no. 86 but failing to show the old number (41)* 
 
+A later 1934 renumbering plan changes it from 86 to the current address which is no. 90 Kennington Lane after the pub has been redeveloped and the three shops between the pub and East House have been demolished:
+
+![IMG_20250828_105938715](https://github.com/user-attachments/assets/499ace82-62a1-4815-ae8c-d9880cb0b4cc)
+*Lambeth Council's 1934 renumbering plan*
 
 ---
 
 ## The census data
-The 1841 census picks up Charles living there at no. 41 together with his then-to-be wife Mary Welling (20 years his younger) and two other families:
+The 1841 census picks up Charles living there at no. 41 together with his then-to-be wife Mary Welling (20 years his younger) and three other families:
 
+![SRYHO107_1058_1058-0512(3)](https://github.com/user-attachments/assets/8bed7e32-b8f4-43a8-9f29-8bb9bb11bdf8)
 
-
-
-
-They are then picked up again in the 1851 census at the same address but now married with one daughter (Matilda 11) and three sons (Charles 9, William 4 and Henry 2) 
+They are then picked up again in the 1851 census at the same address but now married with one daughter (Matilda 11) and three sons (Charles 9, William 4 and Henry 2) as well as 2/3 other households:
 
 ![SRYHO107_1572_1572-1549](https://github.com/user-attachments/assets/31fe2667-5c4a-435a-8ad4-7dd4e814d4d5)
 
-The Census again listed Charles' profession as Cooper so it is likely that he worked at the King's Arms pub and that lodgings came along with the job?
+The Census again listed Charles' profession as Cooper so it is likely that he worked at the King's Arms pub and that the lodgings came along with the job?
 
 The Census lists his four children as all having been born in there in Newington and their birth certificates confirm the address as 41 Lower Kennington Road. It also lists Charles' place of birth as Portsmouth (in 1797) and his wife's as Beeding; a village near Worthing.
 
