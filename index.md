@@ -6,6 +6,7 @@ Charles Glasspool, aged 45 is recorded in the 1841 Census as living at _41 Lower
 He is listed as living there with his then-to-be wife Mary Welling (20 years his younger) and two other families living in buildings between the pub and Kennington Manor House.
 
 ![IMG_20250828_133625917_HDR](https://github.com/user-attachments/assets/bf00d10a-a5d7-4ebd-b993-6ef19de28fab)
+*Photo of 41 Lower Kennington Lane - now renumbered as no. 90 Kennington Lane*
 
 Here is the view of the rear of the building:
 
