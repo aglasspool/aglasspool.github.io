@@ -77,8 +77,8 @@ The answer may lie in the 1871 Census which now shows East House (no.41) now ren
 
 Here's a photo from across the other side of the road showing the Chapel and Salvation Army depot around circa 1890 to give a flavour of how things would have looked back then: 
 
-![IMG_20250828_130117284](https://github.com/user-attachments/assets/4dc0098a-bb30-4cc6-8f5d-29d299dee4dd)
-
+![sallyarmy](https://github.com/user-attachments/assets/7d928f48-ba7e-4f55-a317-6117bf73daba)
+*Salvation Army and Chapel on the South side of Lower Kennington Road - opposite Manor House circa 1890*
 
 ---
 
@@ -90,7 +90,7 @@ Mary Ann is next found on record in 1863 remarrying in Hackney to a certain Jose
 
 Here's the same part of Newington Butts but from the south side of St Gabriel Street on the left looking North circa 1930:
 
-![IMG_20250828_184610482_HDR](https://github.com/user-attachments/assets/e18b37a8-7c38-4603-8ef1-5dacc2ca3e49)
+![faulknersnosegay](https://github.com/user-attachments/assets/fd7b0a87-66a5-406f-ad21-189437eb0003)
 * Roughly number 70 Newington Butts on the left looking north through Elephant and Castle with St Gabriel St on the left (1930)*
 
 ---
