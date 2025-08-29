@@ -2,13 +2,24 @@
 # Charles Glasspool (GGGG)
 This is where it all begins! Just south of the Elephant & Castle on the Kennington side of Newington at the end of the A3, which used to be known as Portsmouth Road because it was the main road between London and Portsmouth. 
 
-Charles Glasspool, aged 45 is recorded in the 1841 Census as living at _41 Lower Kennington Lane_ behind the King's Arms pub in Kennington.
+Charles Glasspool, aged 45 is recorded in the 1841 Census as living at _41 Lower Kennington Lane_ (also known as East House) near the King's Arms pub in Kennington.
 He is listed as living there with his then-to-be wife Mary Welling (20 years his younger) and two other families living in buildings between the pub and Kennington Manor House.
 
-Not sure yet exactly which of the buildings it is but here's a 1828 map of the area (some 13 years before the census):
+![IMG_20250828_133625917_HDR](https://github.com/user-attachments/assets/bf00d10a-a5d7-4ebd-b993-6ef19de28fab)
+
+Here is the view of the rear of the building:
+
+![IMG_20250828_133050834_HDR](https://github.com/user-attachments/assets/69919cab-e2e1-4608-81f1-2d7cf3408328)
+
+You will see that the front of the building has been tacked on to the long rectangular rear. It is not clear how long it has been here but this 1828 map of the area appears to show it with a 'T' at the front:
 
 <img width="100%" alt="possible41lowerkenningtonroad" src="https://github.com/user-attachments/assets/1908fb4a-f3e5-444a-a057-1c33d419fc39" />
 
+Kennington Manor House (pictured below) and situated adjacent to the North of the building in question is described by Lambeth Archives [here](https://boroughphotos.org/lambeth/manor-house-kennington-kennington-road-kennington/) as having stables next to it known as 'the long barn'. It says that they were both demolished in 1875 but it appears that the 'long barn' was actually only partly demolished at the front, leaving the long barn section of the stables remaining.
+
+![manorhouse](https://github.com/user-attachments/assets/0cb6d90b-4c6a-4fc5-a36e-151f3edc0b0b)
+
+---
 
 They are then picked up again in the 1851 census at the same address but now married with one daughter (Matilda 11) and three sons (Charles 9, William 4 and Henry 2) 
 
