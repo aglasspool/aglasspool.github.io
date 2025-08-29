@@ -22,6 +22,8 @@ Here is the King's Arms pub, Long Barn and Manor House shown on a 1828 map of th
 ![1928 map](https://github.com/user-attachments/assets/1908fb4a-f3e5-444a-a057-1c33d419fc39)
 *1928 Greenwood Map of London*
 
+An 1867 Council renumbering plan shows the Long Barn to be numbered as no. 86 but fails to show the old number (41). A later 1934 renumbering plan changes it to the current address which is no. 90 Kennington Lane. 
+
 ![IMG_20250828_110513684](https://github.com/user-attachments/assets/922a1f34-bd1e-4cee-9ded-a3a03bb61e9e)
 *1867 renumbering plan showing the Long Barn to be numbered as no. 86 but failing to show the old number (41)* 
 
