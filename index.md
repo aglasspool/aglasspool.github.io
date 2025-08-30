@@ -1,7 +1,7 @@
 # Charles Glasspool (GGGG)
 This is where it all begins! Kennington Lane, just south of the Elephant & Castle near the end of the A3; what was then called Portsmouth Road because it was the old Roman road between London and Portsmouth. 
 
-Charles Glasspool, age 45 is recorded in the 1841 Census as living at *41 Lower Kennington Lane* (also known as East House) near the King's Arms pub in Kennington.
+Charles Glasspool, age 45 is recorded in the 1841 Census as living at *41 Lower Kennington Lane* (also known as East House) near the King's Arms pub in Kennington (what you see on the left here is the new pub built circa 1938 - the old pub also housed a theatre according to [Lambeth Archives](https://boroughphotos.org/lambeth/kings-arms-kennington-lane-kennington-advertisement/)):
 
 ![IMG_20250828_133625917_HDR](https://github.com/user-attachments/assets/bf00d10a-a5d7-4ebd-b993-6ef19de28fab)
 *Photo of 41 Lower Kennington Lane - since renumbered first as 89 and now as no. 90 Kennington Lane.*
