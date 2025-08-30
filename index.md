@@ -68,7 +68,7 @@ The Post Office Directory from 1860 also shows that Mitchell shares that yard wi
 ![1860 Post office directory](https://github.com/user-attachments/assets/4334abad-788c-434c-8d29-3f6faf8c23ff)
 *1860 Post Office Directory - Extract for Lower Kennington Lane*
 
-The question is whether 42A is where Mary Ann and family are living at this point in time or whether this is where she has her dressmaking workshop, which might now be part of or attached to East House (number 41).
+The question is whether 42A is where Mary Ann and family are living at this point in time or whether this is where she has her dressmaking workshop, which might now be part of or attached to East House (number 41) - or whether they have always been at number 41 and this is just a mess up by the census enumerator?
 
 The answer may lie in the 1871 Census which now shows East House (no.41) now renumber as no. 86 and that whilst there in no no. 85, next door there is a no. 85A which is described by the Census as 'this 85A is down a yard'. This is supported by the above-shown 1867 renumbering map, which shows an alleyway between numbers 86-84 and also the 1850 illustration showing Viet Charles Mitchell's paint yard at number 40 as being an entrance to a yard:
 
