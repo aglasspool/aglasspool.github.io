@@ -107,9 +107,24 @@ Incidentally all Censuses lists Charles' four children as all having been born i
 Charles' second son William was born at 41 LKR (according to his baptism certifcate from St Mary's Church) in 1847 and died in 1902 in Edmonton, London.
 William married Elizabeth Mary Oliver who was born the same year in St John's Wood (North London). She died in 1917 in Bristol. Her elder/younger? brothers were born in Peckham in the early 1850s, which suggests that her family lived locally at the time they met.
 
-He is next found at 46 Newington Butts and the 6 Brunswick Place and then to Tottenham. Did they move there to buy?
+After moving out of the family home in Newington Butts, William is picked up in the 1881 census at no. 6 Brunswick Place (part of the now-demolished Trinity Square estate:
 
-Why did she die in Bristol 15 years after her husband's death in London?
+![LNDRG11_534_537-0366(2)](https://github.com/user-attachments/assets/88827c78-43f6-4306-a310-40126a555004)
+*1881 Census*
+
+Here's a map showing where it was:
+
+![BrunswickPlace](https://github.com/user-attachments/assets/674da59d-c461-4a90-95a2-ab7e31cb2823)
+*Map showing Brunswick Place*
+
+Here's an illustration showing how it would have looked at the time (Brunswick Place on the left looking south):
+
+![BrunswickPlaceillustration](https://github.com/user-attachments/assets/123c6dc3-cec4-40fb-bd54-e0d3d1346f20)
+
+The next 1891 and 1901 censuses show that the family has moved to 16 Avondale road in Haringay near Turnpike Lane. The house still stands.
+William dies the following year. 
+
+The next census in 1911 shows his wife Elizabeth Glasspool (now 64) living with her eldest daughter (also called Elizabeth) at 16 Winsor Terrace in Bristol. 
 
 # William George Glasspool (GG)
 Listed in the xx census as being born in Swansea in 1876. This is an anomaly; all 5 of his siblings 1874 - 1888 were born in Newington (the area encompassing Lower Kennington Road) and he died at 8 Bonneville Gardens in Clapham on 18th Jan 1941. Both he and Edith were listed in the 1939 census as living at 8 Bonneville Gardens along with their son Edgar Glasspool and Williams brother? Ernest Glasspool.  
