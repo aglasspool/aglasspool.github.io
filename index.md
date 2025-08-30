@@ -103,11 +103,11 @@ This 1879 map shows that 42A would have been located directly adjacent to St Mar
 
 Incidentally all Censuses lists Charles' four children as all having been born in there in Newington and their birth certificates confirm the address as 41 Lower Kennington Road. It also lists Charles' place of birth as Portsmouth (in 1797) and his wife's as Beeding; a village near Worthing. According to other records, Charles was born in Southwick near Portsmouth and his father was also born there. Their forefathers are all then listed as living in Titchfield near Portsmouth as far back as the beginning of the 15th Century. 
 
-# William Glasspool (GGG)
+# William Glasspool I (GGG)
 Charles' second son William was born at 41 LKR (according to his baptism certifcate from St Mary's Church) in 1847 and died in 1902 in Edmonton, London.
 William married Elizabeth Mary Oliver who was born the same year in St John's Wood (North London). She died in 1917 in Bristol. Her elder/younger? brothers were born in Peckham in the early 1850s, which suggests that her family lived locally at the time they met.
 
-After moving out of the family home in Newington Butts, William is picked up in the 1881 census at no. 6 Brunswick Place (part of the now-demolished Trinity Square estate:
+After moving out of the family home in Newington Butts, William is picked up in the 1881 census at no. 6 Brunswick Place (part of the now-demolished Trinity Square estate):
 
 ![LNDRG11_534_537-0366(2)](https://github.com/user-attachments/assets/88827c78-43f6-4306-a310-40126a555004)
 *1881 Census*
@@ -120,44 +120,50 @@ Here's a map showing where it was:
 Here's an illustration showing how it would have looked at the time (Brunswick Place on the left looking south):
 
 ![BrunswickPlaceillustration](https://github.com/user-attachments/assets/123c6dc3-cec4-40fb-bd54-e0d3d1346f20)
+*Illustration showing Brunswick Place on the left*
 
-The next 1891 and 1901 censuses show that the family has moved to 16 Avondale road in Haringay near Turnpike Lane. The house still stands.
-William dies the following year. 
+The census shows him as now married to a certain Elizabeth Glasspool and with children (Elizabeth (6), William (4) and George, (6 months). The eldest and youngest are both recorded as being born in Newington. William however, is recorded as being born in 'Llangyfelach' near Swansea in Wales. There is no explanation for this anomaly. Were they on holiday or visiting relatives when he was born?
 
-The next census in 1911 shows his wife Elizabeth Glasspool (now 64) living with her eldest daughter (also called Elizabeth) at 16 Winsor Terrace in Bristol. 
+In around 1890 the family moved to Tottenham and the 1901 census show that the whole family has moved to 16 Avondale road in Haringay near Turnpike Lane and have had two further children (Matilda 17 and Ernest 12). The census shows that the elder two siblings Elizabeth (26) and William II (24) had by this time moved out. The house at 16 Avondale road still stands. William I dies the following year. 
 
-# William George Glasspool (GG)
-Listed in the xx census as being born in Swansea in 1876. This is an anomaly; all 5 of his siblings 1874 - 1888 were born in Newington (the area encompassing Lower Kennington Road) and he died at 8 Bonneville Gardens in Clapham on 18th Jan 1941. Both he and Edith were listed in the 1939 census as living at 8 Bonneville Gardens along with their son Edgar Glasspool and Williams brother? Ernest Glasspool.  
+The next census in 1911 shows his wife Elizabeth Glasspool (now 64) living with her eldest daughter (also called Elizabeth) at 16 Winsor Terrace in Bristol. The census shows that one of the other family members is a lithographic printer.
+
+# William Glasspool II (GG)
+Not much is known about William the second's early life since he left the Southwark family home circa 1890 in his early twenties. All we know is that he must have moved to Bristol some time before 1909 when he married Edith Haines in Bristol.
+
+He died at 8 Bonneville Gardens in Clapham on 18th Jan 1941. Both he and Edith were listed in the 1939 census as living at 8 Bonneville Gardens along with their son Edgar Glasspool and William's younger brother Ernest Glasspool.  
 
 ![1939census](https://github.com/user-attachments/assets/40b949b9-a129-43d7-b8c6-2f7a61446d51)
+*1939 census*
 
-The house still exists today. Here it is:
+The house in Clapham still exists today. Here it is:
 
 <img width="100%" alt="Screenshot 2025-08-26 at 07-58-12 6 Bonneville Gardens - Google Maps" src="https://github.com/user-attachments/assets/eeacbb8d-05fb-44ae-a143-fc90fbb4bbeb" />
 
-In 1909 he Married Edith Haines, daughter of Charles Haines, born 1849 Clifton, Bristol. According to [this website](http://cliftonrfchistory.co.uk/members/membersH.htm) Charles' father William ran a Bakery. In one census, Charles' profession is listed as Printer/Compositor but in another he is recorded as beieng a Musician so this is probably where the Glasspool family musical impetus comes from.
+In 1909 William II Married Edith Haines, daughter of Charles Haines, born 1849 in Clifton, Bristol. According to [this website](http://cliftonrfchistory.co.uk/members/membersH.htm) Charles' father William ran a Bakery. In one census, Charles' profession is listed as Printer/Compositor but in another he is recorded as beieng a Musician so this is probably where the Glasspool family musical impetus comes from.
 
-This (19??) Census has William George down as a Lithographer for a local Bristol printing firm Mardon Son & Hall. Is this the same company where his father-in-law worked? It was [known](https://www.wopc.co.uk/uk/mardon/) for printing collectable token cards for cigarette packets and was taken over by Imperial Tobacco in 1906.
+This (1929?) Census has William George down as a Lithographer for a local Bristol printing firm Mardon Son & Hall. Is this the same company where his father-in-law worked? It was [known](https://www.wopc.co.uk/uk/mardon/) for printing collectable token cards for cigarette packets and was taken over by Imperial Tobacco in 1906.
 
 <img width="100%" alt="glasspoolfamilytree" src="https://github.com/user-attachments/assets/06d74dce-7528-4b21-a631-f44f4cb84006" />
 
-Here are some photographs of William Glasspool and family:
+Here are some photographs of William II and family:
 
 <img width="100%" alt="jeanphotos" src="https://github.com/user-attachments/assets/aa87f25e-178a-46d8-864a-e9b197370927" />
 
 <img width="100%" alt="jeanphotos2" src="https://github.com/user-attachments/assets/1f9d2a18-2066-43c6-96dd-2902293caed5" />
 
 # Allan Glasspool (G)
-Was born in Bristol in 1913. In 1939 he married Elizabeth Barker whose family was from Stoke-on-Trent. This was her second marriage as her previous husband (Edward Lucas) had died at the age of 22. His mother Elsie Jones was from north Wales.
+Was born in Bristol in 1913. In 1939 he married Elizabeth Barker whose family was from Stoke-on-Trent. This was her second marriage as her previous husband (Edward Lucas) had died at the age of 22. Edward's mother Elsie Jones was from north Wales.
 
-In 1939, Allan is found in the Worthing local press on 14th October 1938, reported to left Herbert Lodge's Symphony/Municipal Orchestra for the Royal Philharmonic Orchestra in London:
+In 1939, Allan is found in the Worthing local press on 14th October 1938, reported to have left Herbert Lodge's Symphony/Municipal Orchestra for the Royal Philharmonic Orchestra in London:
 
 ![IMG_20250824_173843005~2](https://github.com/user-attachments/assets/04018705-7d21-47c9-a2e5-925f6bfa181c)
+*Worthing local press 1939*
 
 Records from the Royal Philharmonic Society show that he played for the London Symphony Orchestra and London Philharmonic Orchestra in spring 1939, including both at the Royal Opera House and the Queen's Hall (destroyed by a bomb in 1941).
 
 He is then absent from records until reappearing again in 1948. It has been suggested that he was conscripted or joined the war effort in the Navy. Word has it that he survived two ship sinkings..
-Naval records from those times are still difficult to access without death certificates etc.
+Naval records from those times difficult to access without death certificates etc.
 
 His reappearance in 1948 was being listed as playing for the Royal Philharmonic Orchestra from Nov 17th 1948 to Dec 14th 1949 (seasons 137-138). All at the Royal Albert Hall and all under Sir Thomas Beecham.
 
@@ -169,7 +175,11 @@ Word has it that the RPO didn't pay well so he instead played film music which p
 
 He is also said to have been a fan of jazz and played the saxophone. 
 
-Allan and Liz are picked up again by a 1961? electoral register as living on the Henry Prince estate in Earlsfield, Wandsworth (number 188). This is the same estate where London Mayor Sadiq Khan grew up!
+Allan and Liz are picked up again by a 1961 electoral register as living on the Henry Prince estate in Earlsfield, Wandsworth (number 188). This is the same estate where London Mayor Sadiq Khan grew up!
+
+![Henry Prince estate](https://github.com/user-attachments/assets/e27d5484-36e8-47fd-86e0-b79c3e6e8006)
+*Henry Prince estate, Earlsfield, Wandsworth*
+
 
 
 
