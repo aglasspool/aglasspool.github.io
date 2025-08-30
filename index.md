@@ -140,9 +140,9 @@ The house in Clapham still exists today. Here it is:
 
 <img width="100%" alt="Screenshot 2025-08-26 at 07-58-12 6 Bonneville Gardens - Google Maps" src="https://github.com/user-attachments/assets/eeacbb8d-05fb-44ae-a143-fc90fbb4bbeb" />
 
-In 1909 William II Married Edith Haines, daughter of Charles Haines, born 1849 in Clifton, Bristol. According to [this website](http://cliftonrfchistory.co.uk/members/membersH.htm) Charles' father William ran a Bakery. In one census, Charles' profession is listed as Printer/Compositor but in another he is recorded as beieng a Musician so this is probably where the Glasspool family musical impetus comes from.
+In 1909 William II Married Edith Haines, daughter of Charles Haines, born 1849 in Clifton, Bristol. According to [this website](http://cliftonrfchistory.co.uk/members/membersH.htm) Charles' father William ran a Bakery. In one census, Charles' profession is listed as Printer/Compositor but in another he is recorded as a Musician so this is probably where the later musical impetus comes from (via Edith).
 
-This (1929?) Census has William George down as a Lithographer for a local Bristol printing firm Mardon Son & Hall. Is this the same company where his father-in-law worked? It was [known](https://www.wopc.co.uk/uk/mardon/) for printing collectable token cards for cigarette packets and was taken over by Imperial Tobacco in 1906.
+This (1929) Census has William George down as a Lithographer for a local Bristol printing firm Mardon Son & Hall. Is this the same company where his father-in-law worked? It was [known](https://www.wopc.co.uk/uk/mardon/) for printing collectable token cards for cigarette packets and was taken over by Imperial Tobacco in 1906.
 
 <img width="100%" alt="glasspoolfamilytree" src="https://github.com/user-attachments/assets/06d74dce-7528-4b21-a631-f44f4cb84006" />
 
