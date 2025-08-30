@@ -117,7 +117,7 @@ Here's a map showing where it was:
 ![BrunswickPlace](https://github.com/user-attachments/assets/674da59d-c461-4a90-95a2-ab7e31cb2823)
 *Map showing Brunswick Place*
 
-Here's an illustration showing how it would have looked at the time (Brunswick Place on the left looking south):
+Here's an illustration showing how it would have looked at the time (Brunswick Place on the left looking south) the six-storey council blocks seen in the background (now the Rockingham estate off Harper Road) are still standing today:
 
 ![BrunswickPlaceillustration](https://github.com/user-attachments/assets/123c6dc3-cec4-40fb-bd54-e0d3d1346f20)
 *Illustration showing Brunswick Place on the left*
@@ -131,7 +131,7 @@ The next census in 1911 shows his wife Elizabeth Glasspool (now 64) living with 
 # William Glasspool II (GG)
 Not much is known about William the second's early life since he left the Southwark family home circa 1890 in his early twenties. All we know is that he must have moved to Bristol some time before 1909 when he married Edith Haines in Bristol.
 
-He died at 8 Bonneville Gardens in Clapham on 18th Jan 1941. Both he and Edith were listed in the 1939 census as living at 8 Bonneville Gardens along with their son Edgar Glasspool and William's younger brother Ernest Glasspool.  
+He died at 8 Bonneville Gardens in Clapham on 18th Jan 1941. Both he and Edith were listed in the 1939 census as living at 8 Bonneville Gardens along with their son Edgar Glasspool and William's younger brother Ernest Glasspool (and other family members who have been redacted).  
 
 ![1939census](https://github.com/user-attachments/assets/40b949b9-a129-43d7-b8c6-2f7a61446d51)
 *1939 census*
@@ -179,6 +179,10 @@ Allan and Liz are picked up again by a 1961 electoral register as living on the 
 
 ![Henry Prince estate](https://github.com/user-attachments/assets/e27d5484-36e8-47fd-86e0-b79c3e6e8006)
 *Henry Prince estate, Earlsfield, Wandsworth*
+
+---
+
+Now looking forward to adding the numerous interesting maternal branches to this family tree - WATCH THIS SPACE!
 
 
 
