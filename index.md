@@ -1,5 +1,5 @@
 # Charles Glasspool (GGGG)
-This is where it all begins! Just south of the Elephant & Castle on the Kennington side of Newington at the end of the A3, which used to be known as Portsmouth Road because it was the main road between London and Portsmouth. 
+This is where it all begins! Kennington Lane, just south of the Elephant & Castle near the end of the A3; what was then called Portsmouth Road because it was the old Roman road between London and Portsmouth. 
 
 Charles Glasspool, aged 45 is recorded in the 1841 Census as living at *41 Lower Kennington Lane* (also known as East House) near the King's Arms pub in Kennington.
 
@@ -33,12 +33,12 @@ A later 1934 renumbering plan changes it from 86 to the current address which is
 ---
 
 ## The census data
-The 1841 census picks up Charles living there at no. 41 together with his then-to-be wife Mary Welling (20 years his younger) and three other families:
+The 1841 census first picks up Charles living at no. 41 together with his then-to-be wife Mary Ann Welling (20 years his younger) and three other families:
 
 ![SRYHO107_1058_1058-0512(3)](https://github.com/user-attachments/assets/8bed7e32-b8f4-43a8-9f29-8bb9bb11bdf8)
 * 1841 Census *
 
-They are then picked up again in the 1851 census at the same address but now married with one daughter (Matilda 11) and three sons (Charles 9, William 4 and Henry 2) as well as 2/3 other households:
+They are then picked up again in the 1851 census at the same address but now married with one daughter (Matilda 11) and three sons (Charles 9, William 4 and Henry 2) as well as 3 other households:
 
 ![SRYHO107_1572_1572-1549](https://github.com/user-attachments/assets/31fe2667-5c4a-435a-8ad4-7dd4e814d4d5)
 * 1851 Census *
@@ -75,7 +75,7 @@ The answer may lie in the 1871 Census which now shows East House (no.41) now ren
 ![LNDRG10_664_665-0071](https://github.com/user-attachments/assets/534bbf4b-30ce-48b7-8238-3e41bdfc4193)
 * 1871 Census*
 
-Here's a photo from across the other side of the road showing the Chapel and Salvation Army depot around circa 1890 to give a flavour of how things would have looked back then: 
+Here's a photo of the opposite side of the road showing St Mary's Chapel near the junction with Pleasant Row to give a flavour of how things would have looked back then: 
 
 ![sallyarmy](https://github.com/user-attachments/assets/7d928f48-ba7e-4f55-a317-6117bf73daba)
 *Salvation Army and Chapel on the South side of Lower Kennington Road - opposite Manor House circa 1890*
@@ -83,7 +83,7 @@ Here's a photo from across the other side of the road showing the Chapel and Sal
 ---
 
 ## The move to Newington Butts
-Mary Ann is next found on record in 1863 remarrying in Hackney to a certain Joseph Knights (bachelor). They are all then picked up in the 1871 census living at number 74A Newington Butts. Here's a photo of Newington Butts looking south with the junction with St Gabriel Street on the right circa 1890; 74A would have been around 10 doors further down after St Gabriel Street on the right hand side.
+Mary Ann is next found on record in 1863 remarrying to a certain Joseph Knights (bachelor). They are all then picked up in the 1871 census living at number 74A Newington Butts. Here's a photo of Newington Butts looking south with the junction with St Gabriel Street on the right circa 1890; 74A would have been around 10 doors further down after St Gabriel Street on the right hand side.
 
 ![IMG_20250828_130053192_HDR](https://github.com/user-attachments/assets/d30e6e2f-63b8-4741-9ab5-df880dfcabf4)
 *Newington Butts corner with St Gabriel Street circa 1890*
