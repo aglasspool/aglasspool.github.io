@@ -36,12 +36,12 @@ A later 1934 renumbering plan changes it from 86 to the current address which is
 The 1841 census first picks up Charles living at no. 41 together with his then-to-be wife Mary Ann Welling (20 years his younger) and three other families:
 
 ![SRYHO107_1058_1058-0512(3)](https://github.com/user-attachments/assets/8bed7e32-b8f4-43a8-9f29-8bb9bb11bdf8)
-* 1841 Census *
+*1841 Census*
 
 They are then picked up again in the 1851 census at the same address but now married with one daughter (Matilda 11) and three sons (Charles 9, William 4 and Henry 2) as well as 3 other households:
 
 ![SRYHO107_1572_1572-1549](https://github.com/user-attachments/assets/31fe2667-5c4a-435a-8ad4-7dd4e814d4d5)
-* 1851 Census *
+*1851 Census*
 
 The Census again listed Charles' profession as Cooper so is it possible that he worked at the King's Arms pub and that the lodgings came along with the job?
 or did he work for one of the several breweries up the road?
@@ -51,17 +51,17 @@ Charles died three years after this census in 1854.
 The next census in 1861 shows Mary Ann Glasspool and the children now living at 42A Lower Kennington road. This census doesn't list number 41 so have they moved house or did the census just list what was 41 now as 42? This theory is backed up by the fact that previous censuses have shown three households living at number 41 and this census shows three households at number 42.
 
 ![SRYRG9_352_355-0444(4)](https://github.com/user-attachments/assets/4b23e074-1f68-4fac-819e-542320cbfd3d)
-* 1861 Census Page 1*
+*1861 Census Page 1*
 
 ![SRYRG9_352_355-0445(2)](https://github.com/user-attachments/assets/8236a73a-c608-4ebc-a8ab-33decff10a35)
-* 1861 Census Page 2*
+*1861 Census Page 2*
 
 There's the shoemaker Henry Brown at number 42, Mary Ann and children at 42A and Hotel porter Thomas Wilkinson at 42B. Matilda Glasspool, the eldest daughter (now 20) is also listed as a dressmaker so probably working for the family business. In between numbers 42 and 42A, 42B is 'East House' where auctioneer Raphael Myers and his wife live with their two grandaughters.
 
 Have they now moved from 41 (East house) into the workshop next door to the right? This image shows the entrance to Viet Charles Mitchell's paint-making workshop at number 40 LKR at around circa 1850 and Mary Glasspool Dressmakers is listed in the post office directory (1960) as being next door on the left. 
 
 ![42LKL](https://github.com/user-attachments/assets/1697054b-3cdd-4648-8609-6d22252771c0)
-* Illustration showing Manor House in the background with Viet Charles Mitchell's paint workshop at 40 LKR*
+*Illustration showing Manor House in the background with Viet Charles Mitchell's paint workshop at 40 LKR*
 
 The Post Office Directory from 1860 also shows that he shares that yard with William Sheppard (A 'Hatter') and that number 41 (listed as East House) is occupied by Richard Myers, an auctioneer. This is further confirmation that number 41 was indeed East House. At number 42, Mary Ann Glasspool is listed as Dressmaker:
 
@@ -73,7 +73,7 @@ The question is whether 42A is where Mary Ann and family are now living or wheth
 The answer may lie in the 1871 Census which now shows East House (no.41) now renumber as no. 86 and that whilst there in no no. 85, next door there is a no. 85A which is described by the Census as 'this 85A is down a yard'. This is supported by the above-shown 1867 renumbering map, which shows an alleyway between numbers 86-84 and also the 1850 illustration showing Viet Charles Mitchell's paint yard at number 40 as being an entrance to a yard:
 
 ![LNDRG10_664_665-0071](https://github.com/user-attachments/assets/534bbf4b-30ce-48b7-8238-3e41bdfc4193)
-* 1871 Census*
+*1871 Census*
 
 Here's a photo of the opposite side of the road showing St Mary's Chapel near the junction with Pleasant Row to give a flavour of how things would have looked back then: 
 
@@ -91,7 +91,7 @@ Mary Ann is next found on record in 1863 remarrying to a certain Joseph Knights 
 Here's the same part of Newington Butts but from the south side of St Gabriel Street on the left looking North circa 1930:
 
 ![faulknersnosegay](https://github.com/user-attachments/assets/fd7b0a87-66a5-406f-ad21-189437eb0003)
-* Roughly number 70 Newington Butts on the left looking north through Elephant and Castle with St Gabriel St on the left (1930)*
+*Roughly number 70 Newington Butts on the left looking north through Elephant and Castle with St Gabriel St on the left (1930)*
 
 This 1879 map shows that 42A would have been located directly adjacent to St Mary's Church:
 
@@ -150,7 +150,7 @@ Here are some photographs of William Glasspool and family:
 # Allan Glasspool (G)
 Was born in Bristol in 1913. In 1939 he married Elizabeth Barker whose family was from Stoke-on-Trent. This was her second marriage as her previous husband (Edward Lucas) had died at the age of 22. His mother Elsie Jones was from north Wales.
 
-In 1939, Allan is found in the Worthing local press on 14th October 1938, reported to left Herbert Lodge's Symphony/Municipal Orchestra for the Royal Philharmonic Orchestra in London.
+In 1939, Allan is found in the Worthing local press on 14th October 1938, reported to left Herbert Lodge's Symphony/Municipal Orchestra for the Royal Philharmonic Orchestra in London:
 
 ![IMG_20250824_173843005~2](https://github.com/user-attachments/assets/04018705-7d21-47c9-a2e5-925f6bfa181c)
 
@@ -170,9 +170,6 @@ Word has it that the RPO didn't pay well so he instead played film music which p
 He is also said to have been a fan of jazz and played the saxophone. 
 
 Allan and Liz are picked up again by a 1961? electoral register as living on the Henry Prince estate in Earlsfield, Wandsworth (number 188). This is the same estate where London Mayor Sadiq Khan grew up!
-
-# The Connections
-What is the Bristol connection? and what is the Worthing connection?
 
 
 
