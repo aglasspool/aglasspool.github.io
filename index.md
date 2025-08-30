@@ -93,6 +93,12 @@ Here's the same part of Newington Butts but from the south side of St Gabriel St
 ![faulknersnosegay](https://github.com/user-attachments/assets/fd7b0a87-66a5-406f-ad21-189437eb0003)
 * Roughly number 70 Newington Butts on the left looking north through Elephant and Castle with St Gabriel St on the left (1930)*
 
+This 1879 map shows that 42A would have been located directly adjacent to St Mary's Church:
+
+![42A Newington Butts](https://github.com/user-attachments/assets/606398fd-e5d4-45fd-8e63-d73f72fce33a)
+*42A Newington Butts shown on 1879 map*
+
+
 ---
 
 Incidentally all Censuses lists Charles' four children as all having been born in there in Newington and their birth certificates confirm the address as 41 Lower Kennington Road. It also lists Charles' place of birth as Portsmouth (in 1797) and his wife's as Beeding; a village near Worthing. According to other records, Charles was born in Southwick near Portsmouth and his father was also born there. Their forefathers are all then listed as living in Titchfield near Portsmouth as far back as the beginning of the 15th Century. 
