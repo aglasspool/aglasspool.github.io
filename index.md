@@ -10,7 +10,7 @@ Here is a view of the rear of the building; it is clear from the brickwork and a
 
 ![IMG_20250828_133050834_HDR](https://github.com/user-attachments/assets/69919cab-e2e1-4608-81f1-2d7cf3408328)
 
-Kennington Manor House (pictured below) is situated North of the building in question and is described by Lambeth Archives [here](https://boroughphotos.org/lambeth/manor-house-kennington-kennington-road-kennington/) as having stables next to it known as 'the long barn'. It says that they were both demolished in 1875 but it appears that the 'long barn' was actually only partly demolished at the front, leaving the long barn section of the stables still standing today.
+Kennington Manor House (pictured below) is situated North of the building in question and is described by Lambeth Archives [here](https://boroughphotos.org/lambeth/manor-house-kennington-kennington-road-kennington/) as having stables next to it known as 'the long barn'. It says that they were both demolished in 1875 but it appears that the 'long barn' was actually only partly demolished at the front, leaving the 'long barn' (subsequently referred to as 'East House' or number 41 Lower Kennington Lane) still standing today (now known as no. 90 Kennington Lane - or the rear thereof).
 
 ![manorhouse](https://github.com/user-attachments/assets/0cb6d90b-4c6a-4fc5-a36e-151f3edc0b0b)
 *Kennington Manor House shortly before its demolition in 1875*
