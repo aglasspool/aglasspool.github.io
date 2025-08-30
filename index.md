@@ -1,12 +1,12 @@
 # Charles Glasspool (GGGG)
 This is where it all begins! Kennington Lane, just south of the Elephant & Castle near the end of the A3; what was then called Portsmouth Road because it was the old Roman road between London and Portsmouth. 
 
-Charles Glasspool, aged 45 is recorded in the 1841 Census as living at *41 Lower Kennington Lane* (also known as East House) near the King's Arms pub in Kennington.
+Charles Glasspool, age 45 is recorded in the 1841 Census as living at *41 Lower Kennington Lane* (also known as East House) near the King's Arms pub in Kennington.
 
 ![IMG_20250828_133625917_HDR](https://github.com/user-attachments/assets/bf00d10a-a5d7-4ebd-b993-6ef19de28fab)
 *Photo of 41 Lower Kennington Lane - since renumbered first as 89 and now as no. 90 Kennington Lane.*
 
-Here is a view of the rear of the building; it is clear from the brickwork and anchor plates that the front part of the building has been added on to the older rear part:
+Here is a view of the rear of the building; it is clear from the brickwork and anchor plates, that the front part of the building has been added on to the older rear part:
 
 ![IMG_20250828_133050834_HDR](https://github.com/user-attachments/assets/69919cab-e2e1-4608-81f1-2d7cf3408328)
 
@@ -48,7 +48,7 @@ or did he work for one of the several breweries up the road?
 
 Charles died three years after this census in 1854. 
 
-The next census in 1861 shows Mary Ann Glasspool and the children now living at 42A Lower Kennington road. This census doesn't list number 41 so have they moved house or did the census just list what was 41 now as 42? This theory is backed up by the fact that previous censuses have shown three households living at number 41 and this census shows three households at number 42.
+The next census in 1861 shows Mary Ann Glasspool and the children now living at 42A Lower Kennington road. This census doesn't list number 41 so have they moved house or did the census just list what was 41 now as 42? This theory is backed up by the fact that previous censuses have shown three households living at number 41 and this census shows three households at number 42 (nos. 42, 42A and 42B).
 
 ![SRYRG9_352_355-0444(4)](https://github.com/user-attachments/assets/4b23e074-1f68-4fac-819e-542320cbfd3d)
 *1861 Census Page 1*
@@ -58,17 +58,17 @@ The next census in 1861 shows Mary Ann Glasspool and the children now living at 
 
 There's the shoemaker Henry Brown at number 42, Mary Ann and children at 42A and Hotel porter Thomas Wilkinson at 42B. Matilda Glasspool, the eldest daughter (now 20) is also listed as a dressmaker so probably working for the family business. In between numbers 42 and 42A, 42B is 'East House' where auctioneer Raphael Myers and his wife live with their two grandaughters.
 
-Have they now moved from 41 (East house) into the workshop next door to the right? This image shows the entrance to Viet Charles Mitchell's paint-making workshop at number 40 LKR at around circa 1850 and Mary Glasspool Dressmakers is listed in the post office directory (1960) as being next door on the left. 
+Have they now moved from 41 (East house) into the workshop next door to the right? This image shows the entrance to Viet Charles Mitchell's paint-making workshop at number 40 LKR at around circa 1850 and Mary Glasspool Dressmakers is listed in the post office directory (1960) as being next door on the left - or has the historic confusion around numbering just led to the three households recorded at number 41 now being misnumbered as 42, 42A and 42B? 
 
 ![42LKL](https://github.com/user-attachments/assets/1697054b-3cdd-4648-8609-6d22252771c0)
 *Illustration showing Manor House in the background with Viet Charles Mitchell's paint workshop at 40 LKR*
 
-The Post Office Directory from 1860 also shows that he shares that yard with William Sheppard (A 'Hatter') and that number 41 (listed as East House) is occupied by Richard Myers, an auctioneer. This is further confirmation that number 41 was indeed East House. At number 42, Mary Ann Glasspool is listed as Dressmaker:
+The Post Office Directory from 1860 also shows that Mitchell shares that yard with William Sheppard (a 'Hatter') and that number 41 (listed as East House) is occupied by Richard Myers, an auctioneer. This is further confirmation that number 41 was indeed East House. At number 42, Mary Ann Glasspool is listed as Dressmaker:
 
 ![1860 Post office directory](https://github.com/user-attachments/assets/4334abad-788c-434c-8d29-3f6faf8c23ff)
 *1860 Post Office Directory - Extract for Lower Kennington Lane*
 
-The question is whether 42A is where Mary Ann and family are now living or whether this is where she has her dressmaking workshop, which might now be part of or attached to East House (number 41).
+The question is whether 42A is where Mary Ann and family are living at this point in time or whether this is where she has her dressmaking workshop, which might now be part of or attached to East House (number 41).
 
 The answer may lie in the 1871 Census which now shows East House (no.41) now renumber as no. 86 and that whilst there in no no. 85, next door there is a no. 85A which is described by the Census as 'this 85A is down a yard'. This is supported by the above-shown 1867 renumbering map, which shows an alleyway between numbers 86-84 and also the 1850 illustration showing Viet Charles Mitchell's paint yard at number 40 as being an entrance to a yard:
 
