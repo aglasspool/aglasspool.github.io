@@ -15,10 +15,24 @@ The Hampshire Chronicle dated Monday 20 July 1840 reports that they have been _"
 
 A month later on 24 August, the Chronicle reports that their sentences have been reduced to _'transportation'_ (to a penal colony). 
 
+Jonah did and is picked up again in the 1851? census living in Mill Street, Lymington. Did his brother and father survive?
 
+Then in the 1861 and 1871 censuses as Innkeeper at the Railway Inn on Quay Street:
+
+![HAMRG10_1171_1173-0439](https://github.com/user-attachments/assets/1c37a138-d5fa-428a-a3f4-4da8d575ee24)
+*1861?71? census*
+
+Here's the Railway Inn today:
 
 ![railway inn](https://github.com/user-attachments/assets/e015727e-4aee-471e-80d0-58d5dec438a9)
 *The old Railway Inn on Quay Street - left of photo*
+
+Captain William Rickman - Mayor of Portsmouth had Milford House built.
+Father of Thomas and John Rickman (census initiator)
+and father of the aforementioned James Rickman.
+![Milford House](https://github.com/user-attachments/assets/dda795df-e4d7-4e40-a923-abdea11b6f0f)
+*Milford House, Milford-on-Sea*
+
 
 
 
