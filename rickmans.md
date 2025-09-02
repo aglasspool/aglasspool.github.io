@@ -57,7 +57,9 @@ Unfortunately, by the time William died in 1764, his money had run out – large
 ---
 ## Going further back  
 
-According to [this link](https://hampshirearchivestrust.co.uk/stories/a-corner-of-hampshire-where-the-census-maker-lived) the Rickmans _"were originally from Somerset, by the seventeenth century the Rickman family held the lordship of the manor of Hordle, near Lymington, with a windmill and a small estate of 50 or 60 acres on the coast."_
+According to [this link](https://hampshirearchivestrust.co.uk/stories/a-corner-of-hampshire-where-the-census-maker-lived) the Rickmans _"were originally from Somerset, by the seventeenth century the Rickman family held the lordship of the manor of Hordle, near Lymington, with a windmill and a small estate of 50 or 60 acres on the coast."_ 
+
+However, this is contradicted by [this link](https://hordleca.org.uk/hordle-history/) which says that William Rickman purchased it in 1747 and then resold it after only a few years.
 
 Other theories include the ['Gypsy surname index of Great Britain'](http://www.geocities.ws/avonvalleycollection/JJGypsyIndex.pdf), in which Rickman is a gypsy surname from Hampshire:
 
