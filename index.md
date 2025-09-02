@@ -182,7 +182,7 @@ Allan and Liz are picked up again by a 1961 electoral register as living on the 
 
 ---
 
-Now for the maternal Rickman side of the tree - [here it is!](https://aglasspool.github.io/rickman)
+Now for the maternal Rickman side of the tree - [here it is!](https://aglasspool.github.io/rickmans)
 
 
 
