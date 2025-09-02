@@ -40,6 +40,18 @@ and father of the aforementioned James Rickman.
 
 James Rickman was born on 7 August 1796, in Milford, Hampshire, England, United Kingdom, his father, Capt William Rickman Jr, was 62 and his mother, Mary Colless Collett, was 46. He had at least 1 son. He died after about 1840, in Lymington
 
+According to the ['Gypsy surname index of Great Britain'](http://www.geocities.ws/avonvalleycollection/JJGypsyIndex.pdf), Rickman is a gypsy surname from Hampshire:
+
+![Gypsy surname index](https://github.com/user-attachments/assets/2107c621-089e-4696-a02e-5dd33a7f9fa9)
+*Extract from the Gypsy surname index of Great Britain*
+
+
+![Gypsies of the New Forest](https://github.com/user-attachments/assets/eade5f60-8fc4-455c-bf24-70871a202f08)
+*Gypsies of the New Forest pamphlet - circa 1910*
+
+
+
+
 
 
 
