@@ -14,12 +14,27 @@ The pair had been convicted the previous year at Winchester Crown Court of steal
 ![rickmansconvictions](https://github.com/user-attachments/assets/10e4d09f-3a9e-4480-9ba4-6e026109d6ee)
 *Court records from Winchester Crown Court 1840*
 
+A newspaper archive from the time gives a description of the proceedings:
+
+![sheepthieves](https://github.com/user-attachments/assets/adb24863-9ddc-45a2-a656-2ffdd1239cb5)
+*Extract from local newspaper - 1840*
+
 Further court records show that the brothers were sentenced to 10 years and the father 14 years of 'transportation' - i.e. they would be transported to a penal colony (probably Australia) to serve 10 and 14 years respectively of forced labour there.
 
 ![31251_A006062-00104](https://github.com/user-attachments/assets/e3e0d6b1-982c-405f-bc74-1d0409a944e1)
 *Court records from 14 July 1840 recording the sentencing of the Rickmans*
 
-Jonah seems to have survived (why was he not transported?) He was picked up again in 1846 getting married and then again in the 1851 census living in Mill Street, Lymington. Did his brother and father survive? There is a certain James Rickman from Milford picked up the Royal Chelsea Hospital archives who supposedly entered on a false name and was subsequently discharged: [https://discovery.nationalarchives.gov.uk/details/r/D7866310](https://discovery.nationalarchives.gov.uk/details/r/D7866310)
+In 1845, prison records show that James Rickman senior has at some point been transferred to a different hulk in the harbour (the York) and has died. The records describe him as an 'indifferent character' and that he has suffered a number of cuts to the face, arm and hands as well as a broken collar bone. 
+
+![tna_ccc_pcom2_136_00096](https://github.com/user-attachments/assets/ba5c27c2-6ad5-4df0-94c7-a67d3499c27e)
+*Prison hulk records*
+
+Other prison records show that James Snr was transferred to the York in October 1844 with a broken collar bone as well as a number of other *illegible* injuries. Both sons are recorded as having a cut to their first fingers and also recorded as having been discharged in September 1845 after their father had died on the York: 
+
+![tna_ccc_pcom2_134_00025](https://github.com/user-attachments/assets/6925c2fc-5213-4cf8-8046-6f57d71a984d)
+*Prison hulk records*
+
+What became of James junior is unknown. Great-great grandad Jonah was picked up again in 1846 getting married and then again in the 1851 census living in Mill Street, Lymington. 
 
 Then in the 1861 and 1871 censuses Jonah is listed as Innkeeper at the Railway Inn on Quay Street:
 
@@ -41,34 +56,11 @@ Lets work backwards now and see how far back we can go.
 
 Lets start with Jonah's dad James from the prison hulk in 1841. 
 
-James Rickman was born on 7 August 1796 and records show that his father was called William and his mother called Mary.
-
-It is possible that his father was Capt William Rickman Jr [1934-78] and his mother, Mary Colless Collett, who would have been 46 when he was born in Milford-on-sea. Incidentally, if this is the case then his brother would have been Thomas Rickman and his nephew John Rickman [(the initiator of the national census 1771-1840)](https://hampshirearchivestrust.co.uk/stories/a-corner-of-hampshire-where-the-census-maker-lived)
-
-If this is correct then Captain William Rickman Senior would have been James' grandfather and was born August 26, 1701 in Milford-on-Sea. William Rickman Senior is [reported](https://hampshirearchivestrust.co.uk/stories/a-corner-of-hampshire-where-the-census-maker-lived) to have been _“studious lad of good talents” and at the appropriate age was sent off to Portsmouth. He lodged there with a merchant, married his daughter Rebecca Missing, and did rather well. He became Mayor of Portsmouth several times, was appointed JP and in 1747 – by then living in the hamlet of Posbrook, near Titchfield –   served as Sheriff of Hampshire. His fortune enabled him to bail out the family manor of Milford Baddesely, take on the lordship himself and build a new manor house, much of which still exists, within Milford House, once a hotel, now an apartment block."_
-
-Here it is today:
-
-![Milford House](https://github.com/user-attachments/assets/dda795df-e4d7-4e40-a923-abdea11b6f0f)
-*Milford House, Milford-on-Sea*
-
-Unfortunately, by the time William died in 1764, his money had run out – largely due to sureties he had put up for relatives – and all his property was sold. His sons therefore had to seek their own fortunes. John’s father, Thomas, became a clergyman elsewhere, but towards the end of his life returned to live at Christchurch. 
+James Rickman was born on 7 August 1796 and records show that he was a thatcher and that his father was called William (also a thatcher) and his mother called Mary (maiden name Murrey) and that they were married in 1779 (both from Milford-on-Sea). 
 
 ---
-## Going further back  
-
-According to [this link](https://hampshirearchivestrust.co.uk/stories/a-corner-of-hampshire-where-the-census-maker-lived) the Rickmans _"were originally from Somerset, by the seventeenth century the Rickman family held the lordship of the manor of Hordle, near Lymington, with a windmill and a small estate of 50 or 60 acres on the coast."_ 
-
-However, this is contradicted by [this link](https://hordleca.org.uk/hordle-history/) which says that William Rickman purchased it in 1747 and then resold it after only a few years.
-
-Other theories include the ['Gypsy surname index of Great Britain'](http://www.geocities.ws/avonvalleycollection/JJGypsyIndex.pdf), in which Rickman is a gypsy surname from Hampshire:
-
-![Gypsy surname index](https://github.com/user-attachments/assets/2107c621-089e-4696-a02e-5dd33a7f9fa9)
-*Extract from the Gypsy surname index of Great Britain*
 
 
-![Gypsies of the New Forest](https://github.com/user-attachments/assets/eade5f60-8fc4-455c-bf24-70871a202f08)
-*Gypsies of the New Forest pamphlet - circa 1910*
 
 
 
