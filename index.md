@@ -153,19 +153,22 @@ Here are some photographs of William II and family:
 <img width="100%" alt="jeanphotos2" src="https://github.com/user-attachments/assets/1f9d2a18-2066-43c6-96dd-2902293caed5" />
 
 # Allan Glasspool (G)
-Was born in Bristol in 1913. In 1939 he married Elizabeth Barker whose family was from Stoke-on-Trent. This was her second marriage as her previous husband (Edward Lucas) had died at the age of 22. Edward's mother Elsie Jones was from north Wales.
+Allan/Alan? was born in Bristol in 1913. In 1939 he married Elizabeth Barker whose family was from Stoke-on-Trent. This was her second marriage as her previous husband (Edward Lucas) had died at the age of 22. Edward's mother Elsie Jones was from north Wales.
 
-In 1939, Allan is found in the Worthing local press on 14th October 1938, reported to have left Herbert Lodge's Symphony/Municipal Orchestra for the Royal Philharmonic Orchestra in London:
+In 1939, Alan is found in the Worthing local press on 14th October 1938, reported to have left Herbert Lodge's Symphony/Municipal Orchestra for the Royal Philharmonic Orchestra in London:
 
 ![IMG_20250824_173843005~2](https://github.com/user-attachments/assets/04018705-7d21-47c9-a2e5-925f6bfa181c)
 *Worthing local press 1939*
 
-Records from the Royal Philharmonic Society show that he played for the London Symphony Orchestra and London Philharmonic Orchestra in spring 1939, including both at the Royal Opera House and the Queen's Hall (destroyed by a bomb in 1941).
+Records from the Royal Philharmonic Society show that he played for the London Symphony Orchestra and London Philharmonic Orchestra in spring 1939, including both at the Royal Opera House and the Queen's Hall (destroyed by a bomb in 1941). The Conductor for most of these concerts was Sir Thomas Beecham. 
+
+![alang](https://github.com/user-attachments/assets/4071257c-d25f-497b-9d3d-7cd6588ac528)
+*Alan Glasspool*
 
 He is then absent from records until reappearing again in 1948. It has been suggested that he was conscripted or joined the war effort in the Navy. Word has it that he survived two ship sinkings..
-Naval records from those times difficult to access without death certificates etc.
+Naval records from the second world war are not publically available and need to be officialy applied for by next of kin.
 
-His reappearance in 1948 was being listed as playing for the Royal Philharmonic Orchestra from Nov 17th 1948 to Dec 14th 1949 (seasons 137-138). All at the Royal Albert Hall and all under Sir Thomas Beecham.
+He re-appeared in 1948 being listed as playing for the Royal Philharmonic Orchestra from Nov 17th 1948 to Dec 14th 1949 (seasons 137-138). All at the Royal Albert Hall and all under Sir Thomas Beecham.
 
 ![beecham](https://github.com/user-attachments/assets/bcbd8ffd-73b0-4391-9478-79c028107982)
 
@@ -175,7 +178,9 @@ Word has it that the RPO didn't pay well so he instead played film music which p
 
 He is also said to have been a fan of jazz and played the saxophone. 
 
-Allan and Liz are picked up again by a 1961 electoral register as living on the Henry Prince estate in Earlsfield, Wandsworth (number 188). This is the same estate where London Mayor Sadiq Khan grew up!
+[Image of Alan playing the saxophone at Oval Cricket Ground]
+
+Alan and Liz are picked up again by a 1961 electoral register as living on the Henry Prince estate in Earlsfield, Wandsworth (number 188). This is the same estate where London Mayor Sadiq Khan grew up!
 
 ![Henry Prince estate](https://github.com/user-attachments/assets/e27d5484-36e8-47fd-86e0-b79c3e6e8006)
 *Henry Prince estate, Earlsfield, Wandsworth*
