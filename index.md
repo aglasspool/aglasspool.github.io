@@ -1,3 +1,8 @@
+---
+title: The Glasspools
+layout: default
+---
+
 # Charles Glasspool (GGGG)
 This is where it all begins! Kennington Lane, just south of the Elephant & Castle near the end of the A3; what was then called Portsmouth Road because it was the old Roman road between London and Portsmouth. 
 
@@ -20,12 +25,12 @@ Here is the King's Arms pub, Long Barn and Manor House shown on a 1828 map of th
 ![1928 map](https://github.com/user-attachments/assets/1908fb4a-f3e5-444a-a057-1c33d419fc39)
 *1928 Greenwood Map of London*
 
-An 1867 Council renumbering plan shows the Long Barn to be numbered as no. 86 but fails to show the old number (41). This could be due to the confusion from it also being known as 'East House'. 
+An 1867 Council renumbering plan shows the Long Barn to be numbered as 86 but fails to show the old number (41). This could be due to the confusion from it also being known as 'East House'. 
 
 ![IMG_20250828_110513684](https://github.com/user-attachments/assets/922a1f34-bd1e-4cee-9ded-a3a03bb61e9e)
 *1867 renumbering plan showing the Long Barn to be numbered as no. 86 but failing to show the old number (41)* 
 
-A later 1934 renumbering plan changes it from 86 to the current address which is no. 90 Kennington Lane after the pub has been redeveloped and the three shops between the pub and East House have been demolished:
+A later 1934 renumbering plan changes it from 86 to the current address, which is number 90 Kennington Lane after the pub has been redeveloped and the three shops between the pub and East House have been demolished:
 
 ![IMG_20250828_105938715](https://github.com/user-attachments/assets/499ace82-62a1-4815-ae8c-d9880cb0b4cc)
 *Lambeth Council's 1934 renumbering plan*
