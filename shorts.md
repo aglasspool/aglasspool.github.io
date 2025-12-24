@@ -3,6 +3,8 @@ title: Shorts
 layout: default
 ---
 
-# First short
-[The Secure Relationship](images/thesecurerelationship.mp4)
+# The Secure Relationship
+<video>
+<source src="images/thesecurerelationship.mp4" type="video/mp4" />
+</video>
 
