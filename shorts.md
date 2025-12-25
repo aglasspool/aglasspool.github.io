@@ -82,10 +82,17 @@ layout: default
 
 ![minus 1](images/21.jpg)
 
-<img width="887" height="684" alt="Screenshot 2025-12-25 at 16-19-20 Instagram" src="https://github.com/user-attachments/assets/8032857c-7e11-4224-bfb4-293bb08f4d2d" />*https://www.instagram.com/p/DFaQ890xQZ1/*
+<img width="100%" height="auto" alt="Screenshot 2025-12-25 at 16-19-20 Instagram" src="https://github.com/user-attachments/assets/8032857c-7e11-4224-bfb4-293bb08f4d2d" />*https://www.instagram.com/p/DFaQ890xQZ1/*
 
+![minus 1](images/22.jpg)
 
-![minus 1](images/0.jpg)
+![minus 1](images/23.jpg)
+
+![minus 1](images/24.jpg)
+
+![minus 1](images/25.jpg)
+
+![minus 1](images/26.jpg)
 
 ![minus 1](images/0.jpg)
 
