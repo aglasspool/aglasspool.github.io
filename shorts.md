@@ -30,6 +30,27 @@ layout: default
 <source src="images/drglorialee.mp4" type="video/mp4" />
 </video>
 
+# Suparents
+<video controls width="100%">
+<source src="images/suparents.mp4" type="video/mp4" />
+</video>
+
+# At Peace Parents 2
+<video controls width="100%">
+<source src="images/atpeace2.mp4" type="video/mp4" />
+</video>
+
+# At Peace Parents 3
+<video controls width="100%">
+<source src="images/atpeace3.mp4" type="video/mp4" />
+</video>
+
+# Phillosopoet
+<video controls width="100%">
+<source src="images/phillosopoet.mp4" type="video/mp4" />
+</video>
+
+
 ![minus 1](images/minus5.jpg)
 
 ![minus 1](images/minus4.jpg)
