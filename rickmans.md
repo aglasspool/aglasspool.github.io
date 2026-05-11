@@ -52,7 +52,9 @@ Then in the 1861 and 1871 censuses he is listed as Innkeeper at the Railway Inn 
 ![HAMRG10_1171_1173-0439](https://github.com/user-attachments/assets/1c37a138-d5fa-428a-a3f4-4da8d575ee24)
 *1861?71? census*
 
-The census shows that by now he had half a dozen children, all living at the inn. One of those (Harry Charles Rickman [born 1854]) went on to be Big Ears' grandfather. In early censuses he is recorded as a 'nightwatchman' but later turned builder and built houses around the turn of the century on Ambleside Road.
+The census shows that by now he had half a dozen children, all living at the inn. One of those (Harry Charles Rickman [born 1854]) went on to be Jan's great-grandfather. In early censuses he is recorded as a 'nightwatchman' but later turned builder and built houses around the turn of the century on Ambleside Road.
+
+His daughter, Ethel-Jane Rickman (1887) went on to be Jan's grandmother. He married Jan's grandfather (Elton Palmer) born 1887 in Frome, Somerset. They were married in London in 1909 and lived in Edmonton? Willesden?. Violet was born in Edmonton.
 
 Here's the Railway Inn today:
 
@@ -63,13 +65,29 @@ Here's the Railway Inn today:
 
 ## The Rickman roots
 
-Lets work backwards now and see how far back we can go.
-
-Lets start with Jonah's dad James from the prison hulk in 1841. 
-
 James Rickman was born on 7 August 1796 and records show that he was a thatcher and that his father was called William (also a thatcher) and his mother called Mary (maiden name Murrey) and that they were married in 1779 (both from Milford-on-Sea). 
 
 ---
+
+## Frank Richards
+Frank Edward Richards was born in Wandsworth in 1913:
+
+<img width="3840" height="5760" alt="47188_263021009499_1724-00081" src="https://github.com/user-attachments/assets/3f0a9f94-867f-4fc6-86ca-4ab025dec14e" />
+
+The 1921 census picks him up eight years later at 8 years old, living with an older brother and a much older sister together with their mum in Redruth. He's the only one of the children born in London. There's no sign of his father (James Richards) except for on the baptism certificate.
+
+<img width="6489" height="3025" alt="11104_0503" src="https://github.com/user-attachments/assets/90a03148-6036-48c7-b9d3-99b4dc9a4a36" />
+
+---
+
+<img width="3456" height="4608" alt="IMG_20230226_140206876" src="https://github.com/user-attachments/assets/134ff0c8-3efa-4efd-9e1c-4e785fd8f26f" />
+
+
+
+
+
+
+
 
 
 
