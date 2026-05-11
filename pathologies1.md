@@ -1,7 +1,9 @@
 ---
-title: "Pathologies de l'éthique. 1. Le sujet, toujours un accusé."
+title: Pathologies
 layout: default
 ---
+# Pathologies de l'éthique. 1. Le sujet, toujours un accusé.
+
 ## Jacques-Alain Miller. Sao Paolo, 07-1989
 
 ### Subtitle transcript from https://www.youtube.com/watch?v=qKhW5PWqAy8
