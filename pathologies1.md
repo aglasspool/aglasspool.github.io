@@ -1,6 +1,7 @@
 ---
-title: Pathologies
+title: Pathologies 1
 layout: default
+published: false
 ---
 # Pathologies de l'éthique. 1. Le sujet, toujours un accusé.
 
