@@ -72,15 +72,15 @@ James Rickman was born on 7 August 1796 and records show that he was a thatcher 
 ## Frank Richards
 Frank Edward Richards was born in Wandsworth in 1913:
 
-<img width="3840" height="5760" alt="47188_263021009499_1724-00081" src="https://github.com/user-attachments/assets/3f0a9f94-867f-4fc6-86ca-4ab025dec14e" />
+![Baptism certificate](https://github.com/user-attachments/assets/3f0a9f94-867f-4fc6-86ca-4ab025dec14e)
 
 The 1921 census picks him up eight years later at 8 years old, living with an older brother and a much older sister together with their mum in Redruth. He's the only one of the children born in London. There's no sign of his father (James Richards) except for on the baptism certificate.
 
-<img width="6489" height="3025" alt="11104_0503" src="https://github.com/user-attachments/assets/90a03148-6036-48c7-b9d3-99b4dc9a4a36" />
+![1921 census](https://github.com/user-attachments/assets/90a03148-6036-48c7-b9d3-99b4dc9a4a36)
 
 ---
 
-<img width="3456" height="4608" alt="IMG_20230226_140206876" src="https://github.com/user-attachments/assets/134ff0c8-3efa-4efd-9e1c-4e785fd8f26f" />
+![Dereks notes](https://github.com/user-attachments/assets/134ff0c8-3efa-4efd-9e1c-4e785fd8f26f)
 
 
 
