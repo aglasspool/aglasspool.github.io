@@ -12,3 +12,5 @@ _"Le critère est de savoir y faire avec son symptôme pour en tirer de la satis
 (La Passe Bis) ECF 2007:
 https://shs.cairn.info/revue-la-cause-freudienne-2007-2-page-207?lang=fr
 
+Eric.Laurent (NLS YT): Look after your signifier - don't let it get caught up in an imaginary signifying chain (fuck off, I fucking told you why, lost cause[because]). Try and find a new use for it - Kind, Caring, positive.
+
