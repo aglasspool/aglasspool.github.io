@@ -12,5 +12,13 @@ _"Le critère est de savoir y faire avec son symptôme pour en tirer de la satis
 (La Passe Bis) ECF 2007:
 https://shs.cairn.info/revue-la-cause-freudienne-2007-2-page-207?lang=fr
 
-Eric.Laurent (NLS YT): Look after your signifier - don't let it get caught up in an imaginary signifying chain (crazy, fruitcake, the accused, bonkers, fuck off, I fucking told you why, lost cause, incazzatta, fat cunt [because]). Try and find a new use for it - Kind, Caring, positive.
+Eric.Laurent (NLS YT): Look after your signifier - be a poet rather than a poem and don't let it get caught up in an imaginary signifying chain (crazy, fruitcake, the accused, bonkers, fuck off, I fucking told you why, lost cause, incazzatta, fat cunt [because]). Try and find a new use for it - Kind, Caring, positive.
+
+Stein argued that we should use language instead of being used by it. By taking words and exhausing their meaning by giving them so many other possible meanings, she points to the materiality of the signifier and opens up the possibilty of a gap between signifier and signified.
+
+Petrificatory effects of "le discours de la science". The subject is caught up completely within the signifying chain.
+
+JAM dit que "L'escabeau est du côté de la jouissance de la parole qui inclut le sens. En revanche, la jouissance propre au sinthome exclut le sens." et que "Faire une analyse, c'est travailler à la castration de l'escabeau pour mettre au jour la jouissance opaque du symptôme. Mais faire la passe, c'est jouer du symptôme ainsi nettoyé pour s'en faire un escabeau".
+
+Il a dit egalement que faire du sens fait partie de l'imaginaire (S1->S2).
 
